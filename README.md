@@ -1,5 +1,5 @@
 ### Hi! I'm YOOJIN and dreaming of becoming a DATA ANALYST 👋
-#### If you want to see my portfolio(notion link), please contact me! <br>
+### If you want to see my portfolio(notion link), please contact me! <br>
 📩shongyj2000@naver.com
 
 <!--
