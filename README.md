@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi! I'm YOOJIN and dreaming of becoming a DATA ANALYST 👋
+#### If you want to see my portfolio(notion link), please contact me! <br>
+📩shongyj2000@naver.com
 
 <!--
 **Yoojin730/Yoojin730** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
