@@ -6,8 +6,6 @@
 
 #### 👩‍🎓 Yonsei Univ. Applied Statistics 
 
-#### 📍 I’m currently working at HYBE Entertainment DataLab
-
 #### 🏆 DACON 한국 부동산 데이터 시각화 경진대회 : https://dacon.io/competitions/official/235724/codeshare/2737
 
 #### ❤ Skill : Python R SQL HTML CSS JavaScript
