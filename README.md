@@ -14,7 +14,7 @@
 
 ##### 🤍 삼성SDS Brightics 1기 서포터즈 & 2기 서포터멘토
 
-##### 🤍 SK Careers Editor SK(주)C&C Editor : https://www.skcareersjournal.com/category/News/SK%E3%88%9C%20C&C
+##### 🤍 SK Careers Editor SK(주) C&C 취재기자 : https://www.skcareersjournal.com/category/News/SK%E3%88%9C%20C&C
 
 
 
